@@ -1,0 +1,1 @@
+# YetGen_Proje_Initialize_and_Terakki
